@@ -8,6 +8,9 @@ Behind it, he finds a magical world of unicorns living in perfect piece and harm
 ## Plot
 
 Leon woke to the sound of traffic, the sky was gray.
+
+A man glanced at him and walked away.
+
 After his typical breakfast of toast and an egg he left for school.
 Normally Leon would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo.
 
