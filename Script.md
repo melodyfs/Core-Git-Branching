@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Leon met the Unicorn King who granted him magic powers.
+Leon met the Unicorn King who pretended to grant him magic powers. What Leon was not expected, was that the King inserted a drop of devil's blood into his body. The Unicorn King was not sane after all. He wished to manipulate Leon and turn the world into chaos. The King, would remain pure and powerful in front of the world.
 The end.
 
 ## Cast
