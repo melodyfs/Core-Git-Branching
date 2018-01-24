@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Zookeeper yelled, "This is the best kingdom to live!"
+Zookeeper yelled, "This is the best kingdom to live!" Zookeeper decides to stop Leon from obtaining the power from the King. He poisoned Leon with a witch's eyes.
 
 Leon met the Unicorn King who granted him magic powers.
 The end.
