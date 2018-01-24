@@ -30,6 +30,7 @@ Leon met the Unicorn King who pretended to grant him magic powers. What Leon was
 
 Zookeeper yelled, "This is the best kingdom to live!" Zookeeper decides to stop Leon from obtaining the power from the King. He poisoned Leon with a witch's eyes.
 
+But it's too late. Leon had got the power. The Zookeeper confronted Leon and failed. The Zookeeper killed the King and consumed the King's body.
 
 The end.
 
